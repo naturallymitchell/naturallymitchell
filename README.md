@@ -12,10 +12,10 @@ I believe it'll help you put together living our best possible life.
 
 
 * 💵 Cash app: $patchworku
-* Venmo: @patchworku
-* Coinbase: tannenbaum.mitchell@gmail.com
+* 🇻 Venmo: @patchworku
+* 🎊 Coinbase: tannenbaum.mitchell@gmail.com
 * 🔔 Chime: tannenbaum.mitchell@gmail.com
-* 🇻 Varo to Varo: tannenbaummitchell@gmail.com
+* 🏦 Varo to Varo: tannenbaummitchell@gmail.com
 * 🤝 PayPal: tannenbaum.mitchell@gmail.com
 
 - 🔭 I’m currently working on ...
