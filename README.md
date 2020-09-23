@@ -11,12 +11,12 @@ I believe it'll help you put together living our best possible life.
 * [Instagram](https://instagram.com/mitchellmtv0)
 
 
-* Cash app: $patchworku
+* 💵 Cash app: $patchworku
 * Venmo: @patchworku
 * Coinbase: tannenbaum.mitchell@gmail.com
-* Chime: tannenbaum.mitchell@gmail.com
+* 🔔 Chime: tannenbaum.mitchell@gmail.com
 * 🇻 Varo to Varo: tannenbaummitchell@gmail.com
-* PayPal: tannenbaum.mitchell@gmail.com
+* 🤝 PayPal: tannenbaum.mitchell@gmail.com
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
