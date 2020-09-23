@@ -7,7 +7,7 @@ I believe it'll help you put together living our best possible life.
 
 * [Pinterest](https://pinterest.com/naturallymitchell)
 * [Twitter](https://twitter.com/hereismitchell)
-* [YouTube]
+* [YouTube](https://www.youtube.com/channel/UCgbLNarH61kZoHh-RxTzXPA)
 * [Instagram](https://instagram.com/mitchellmtv0)
 
 
