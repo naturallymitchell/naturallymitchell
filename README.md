@@ -1,4 +1,6 @@
-### Hi there 👋
+<img align="right" src="https://github.com/kmt901/kmt901/blob/master/kaya_illustration.PNG" alt="open source welcome illustration" width=350px height=465px/>
+
+### Hello, fam!
 
 <!--
 **naturallymitchell/naturallymitchell** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
