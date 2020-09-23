@@ -2,11 +2,12 @@
 
 ## Hello, world!
 
-Here you can find links to my work. 
+You made it here! 🌇 
+On here and on [Pinterest](https://pinterest.com/naturallymitchell) you can find links to my work.
 I believe it'll help you put together living our best possible life.
+I also have a [Discord server](https://discord.gg/eb3mRnf) where we can chat.
 
 ### Social
-* [Pinterest](https://pinterest.com/naturallymitchell)
 * [Twitter](https://twitter.com/hereismitchell)
 * [YouTube](https://www.youtube.com/channel/UCgbLNarH61kZoHh-RxTzXPA)
 * [Instagram](https://instagram.com/mitchellmtv0)
