@@ -5,10 +5,10 @@
 Here you can find links to my work. 
 I believe it'll help you put together living our best possible life.
 
-* [Pinterest](pinterest.com/naturallymitchell)
-* [Twitter]
+* [Pinterest](https://pinterest.com/naturallymitchell)
+* [Twitter](https://twitter.com/hereismitchell)
 * [YouTube]
-* [Instagram]
+* [Instagram](https://instagram.com/mitchellmtv0)
 
 
 * Cash app: $patchworku
