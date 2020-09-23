@@ -3,14 +3,14 @@
 ## Hello, world!
 
 You made it here! 🌇 
-On here and on [Pinterest](https://pinterest.com/naturallymitchell) you can find links to my work.
-I believe it'll help you put together living our best possible life.
-I also have a [Discord server](https://discord.gg/eb3mRnf) where we can chat.
+On GitHub, [Pinterest](https://pinterest.com/naturallymitchell), and in The Clouds you can find my work.
+I produce a lot more media, like uplifting photos and short videos, so I hope you'll check them out and support me..
 
 ### Social
-* [Twitter](https://twitter.com/hereismitchell)
 * [YouTube](https://www.youtube.com/channel/UCgbLNarH61kZoHh-RxTzXPA)
 * [Instagram](https://instagram.com/mitchellmtv0)
+* [Twitter](https://twitter.com/hereismitchell)
+* [Discord #chat](https://discord.gg/eb3mRnf)
 
 ### Help Support Me
 * 💵 Cash app: $patchworku
